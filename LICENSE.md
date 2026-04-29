@@ -1,4 +1,4 @@
-
+Experience deadlock mod menu like never before with top Scripts for deadlock mod menu - auto-map awareness and auto-hero stun timer, the #1 scripts. Includes auto-map awareness
 
 
 
